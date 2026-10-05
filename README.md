@@ -1,1 +1,0 @@
-# realidade-aumentada-fumecod9grq
